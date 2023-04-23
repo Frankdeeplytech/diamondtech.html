@@ -1,2 +1,0 @@
-# diamondtech.html
-Diamondtech 
